@@ -1,1 +1,1 @@
-# theprismaticgarden.github.io
+# theprismaticgarden
